@@ -59,6 +59,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 5 JARS OF STRAWBERRY JAM
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -80,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- HOT PEPPERS
 
 Instructions:
 1. Preheat grill to medium-high heat.
