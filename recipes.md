@@ -113,3 +113,14 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Tacos de Canasta
+Ingridients:
+- 10 tortillas
+- 1 K beef meat
+- 1 onion
+- 2 red peppers
+
+Instructions:
+1. Mix everything togheter, 
+2. Enjoy.
